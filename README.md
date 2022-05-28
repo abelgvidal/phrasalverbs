@@ -125,3 +125,32 @@ to stop supporting someone
 - All friends bailed him out when they noticed he was into drugs.
 
 
+## bandage up
+cover a injured part of the body
+
+- The arm that has been cut was bandaged up in the hospital
+
+## bandy about / bandy around 
+
+mention something in a informal way
+- the board hasn't designated a director, but some names have been bandied about
+
+say something as gossip
+- they are bandying about that story as if it's the truth
+- don't bandy that nonsense about here, we don't believe you
+
+## bang away at
+work hard
+- I have been banging away at my homework. 
+
+## bang down
+to move down with force
+- He took the book from the bag and he banged it down in the table.
+
+## bang into
+find by accident
+- We could not see anything and I crossed the rooms banging into things.
+
+## bang out 
+to write something quickly
+- I wrote nothing for two months and then I banged out a story just the morning I submitted it to The New Yorker.
