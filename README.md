@@ -68,3 +68,60 @@ to leave one place and go to (another place) after the end of a meeting, discuss
 
 - After the ceremony, we *adjourned to* the garden where lunch was waiting for us.
 - Is the meeting done? Let's *adjourn to* the bar.
+
+## angle for
+to try to get something undirectly
+
+- Have you seen Mark in the last meetings? I suspect he is angling for promotion.
+- She was obviously angling for an invitation.
+
+## answer back
+reply rudely
+- These days my son is behaving badly, i cannot understand the way he answers back.
+- Don't you dare answwer me back, young lady!
+
+## back down
+to admit defeat
+- You could tell by  the tone of his voice he wasn't going to back down.
+- Residentes have forced the Mayor to back down his plans to reduce the parking slots.
+
+## back off
+to back away, to avoid
+- Just back off and let us do this on our own, will you?
+- The President seems to have backed off from his intention of hiking taxes
+
+## back out
+to decide not to do something that you had intention to do
+- She already paid so she can't back out now.
+- I backed out of the deal in the last minute.
+
+## back up
+to say something is telling the truth
+- Will you back up me if I say I was with you last night?
+- I don't know if that is true, but I will always back up John with the police.
+
+to support
+- My family backed my up in my drugs rehab.
+
+to move / drive backwards
+- Could you back up one meter so my car can pass?
+
+to block
+- In wordays, the highway starts to back up at 8 am.
+- To toilet is backing up. Do you know any good plumber?
+
+## bag up
+to put something into bags
+- We bought all the greek yogourts in the supermarket and bagged them up.
+
+## bail out
+to support with money
+- In the last crisis, most banks had to be bailed out
+
+to release from provisional prison with money
+- Anne was arrested and I bailed her out
+
+to stop supporting someone
+- All friends bailed him out when they noticed he was into drugs.
+
+
