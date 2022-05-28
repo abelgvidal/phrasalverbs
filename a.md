@@ -3,7 +3,7 @@
 ## abide by
 to accept an agreement, rule, law or decision
 - We are quite willing to *abide by* your decision.
-- Tell your king I wil *abide by* the divine code.
+- Tell your king I will *abide by* the divine code.
 - Please *abide by* the guidelines to avoid any mistake.
 
 ## account for
@@ -49,7 +49,7 @@ to stop working, a part of your body
 to behave badly
 - If the older sister starts to act up, the others follow the lead.
 
-to to a job above your range for a limited period of time
+to do a job above your range for a limited period of time
 - In that company, junior staff was required to act up but the salary was the same.
 
 ## add up
@@ -61,3 +61,10 @@ to increase
 
 to make sense
 - So why he would kill its wife if she had no money at all? It doesn't *adds up*.
+
+## adjourn to
+
+to leave one place and go to (another place) after the end of a meeting, discussion, etc.
+
+- After the ceremony, we *adjourned to* the garden where lunch was waiting for us.
+- Is the meeting done? Let's *adjourn to* the bar.
