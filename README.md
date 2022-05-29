@@ -179,3 +179,35 @@ to shout
 to break into
 - Someone has bashed in the car and stealed the radio.
 
+## bash on
+to continue doing something boring
+- I would better bash on with this story that is taking me forever to write.
+
+## bash up
+to hurt by hitting hard
+- He got bashed up in a fighting.
+
+## bask in
+to enjoy other people admire you
+- The room exploded in applauses. She smiled, basking in their admiration.
+
+## bat around
+to talk about plan to do something
+- We batted around various ways of changing the rules.
+
+## bat out
+write carelessly
+- At the very last moment, I was batting out lines for my talk.
+
+## batten on/upon
+live with someone else's money
+- He has been living battening on the prize he won last year.
+
+## bawl out
+
+shout with a unpleasant voice
+- Someone in the crowd bawled out my name.
+
+to tell angrily that something has been done wrong
+- He was fired. He had ben bowled out several times for his mistakes.
+
