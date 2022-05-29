@@ -154,3 +154,28 @@ find by accident
 ## bang out 
 to write something quickly
 - I wrote nothing for two months and then I banged out a story just the morning I submitted it to The New Yorker.
+
+## bank on
+to depend on something
+- Since last year, John is banking on the money of their family.
+
+## bargain for / on
+to expect something to happen
+- Last holidays in the north, we had not bargained on an entire week of rain.
+- I hadn't bargained on my father being here fo so long.
+
+## barge in / into
+to enter by surprise in a room
+- You just cannot go barging into every room without notice.
+
+to interrupt 
+- Sorry to barge in, but did I here you say it is your first time here?
+
+## bark out
+to shout
+- They barged in the room in the same moment the officer bark out the order.
+
+## bash in
+to break into
+- Someone has bashed in the car and stealed the radio.
+
