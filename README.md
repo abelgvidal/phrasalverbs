@@ -211,3 +211,42 @@ shout with a unpleasant voice
 to tell angrily that something has been done wrong
 - He was fired. He had ben bowled out several times for his mistakes.
 
+## bear down
+
+to put more effort into doing something:
+- We are giving up too many points - we have to bear down
+
+effort in childbirtch
+- He was supporting his wife while she bore down. The birth was long.
+
+to move with force in one direction
+- The bus had a problem with the brakes and was bearing down on them.
+
+## bear on
+to be connected with
+- Most cases that bear on child abuse happen in that school.
+
+## bear out
+to confirm
+- The DNS analysis bears out what I suspected.
+
+## bear up
+to behave bravely in a sad situation
+- How is she doing after her dad's death? She is bearing up.
+
+## beat down
+to fall with force
+- The rail was beating down all day.
+to reduce price
+- The inflation was beated down by a rise of rates.
+
+## beat off
+to defeat
+- We always beat off competition. We have no shadow.
+
+## beat out
+play de drum
+- They were beating out the drum. I was surprised.
+to stop the fire
+- The kitchen was on fire but we managed to beat it out.
+
